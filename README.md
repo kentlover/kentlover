@@ -2,7 +2,7 @@
 
 <p align="center"> ﹒oh, no, I don't need you, but I miss you, come here﹕︶︶
 
- ![](https://i.pinimg.com/736x/1b/74/cb/1b74cbc817c03cba401a68bc15edbd1a.jpg)
+ ![](https://i.pinimg.com/1200x/6f/04/66/6f0466bd869bb18fd218e55f7d06e3dc.jpg)
 
 
 <p align="center"> ⺌﹑︿︿﹒﹀﹀﹒︿︿﹒﹀﹀﹒︿︿﹒﹀﹀﹒︿︿﹑⺌
