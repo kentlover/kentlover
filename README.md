@@ -2,7 +2,7 @@
 
 <p align="center"> ﹒oh, no, I don't need you, but I miss you, come here﹕︶︶
 
- ![](https://media.discordapp.net/attachments/901179565588766820/1444958096568094841/Untitled4_20251201044149.png?ex=6931e558&is=693093d8&hm=5beba73e9eeb1d65da91d69abf491323f30720f9391e422070d7c4e1f40fb584&=&format=webp&quality=lossless)
+ ![](https://media.discordapp.net/attachments/901179565588766820/1445915199805591703/Untitled4_20251203200810.png?ex=693214f7&is=6930c377&hm=09fa31e2436e3b055975a1bf02b6db0f84366d153be826bd51cd25c30cc7d716&=&format=webp&quality=lossless)
 
 
 <p align="center"> ⺌﹑︿︿﹒﹀﹀﹒︿︿﹒﹀﹀﹒︿︿﹒﹀﹀﹒︿︿﹑⺌
